@@ -8,7 +8,7 @@ you sick fucks XDDDD
 # How to use this shit
 Using this is easy as rizzin' up an autistic girl! Which is pretty fuckin easy, especially if you're already sped like me. 
 
-Anyways to use this, you have to download the "ExtensionFucker.html" file and run on locally! After that, all you need to do is select a dumb ass spyware extension from the drop down list on the website, and then click Rape that Shit!
+Anyways to use this, you have to download the "Extension-Fucker.zip" file and extract it. Once you have done that, you will want to click the .html file and run it locally! After that, all you need to do is select a dumb ass spyware extension from the drop down list on the website, and then click Rape that Shit!
 
 After you're done with that, a black screen will pop up with the words "Click here to hang Extension". After clicking it, it will proceed to try and rape the extension into submission, and if it successfully hangs it, all you need to do is go to the Extension Settings page of the blocker and flip the "Allow access to File URLS" switch.
 
